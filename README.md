@@ -1,1 +1,0 @@
-# oleg-plahotniy.github.io
